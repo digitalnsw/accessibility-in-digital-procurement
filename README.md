@@ -1,1 +1,0 @@
-# accessibility-in-digital-procurement
